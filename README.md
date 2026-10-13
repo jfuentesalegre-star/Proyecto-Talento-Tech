@@ -1,2 +1,2 @@
 # Proyecto-Talento-Tech 
-PUES ACA ESTAMOS BROO
+PUES ACA ESTAMOS
